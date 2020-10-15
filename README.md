@@ -41,6 +41,50 @@ JAB! JAB!
 
 JAB PUNCH HOOK
 @(^0^)==@
+
+Just repeat after me! Repeat after me!
+
+JAP! JAP!
+@==(^0^)@
+
+JAB PUNCH HOOK!
+@(^0^)==@
+
+JAB! JAB!
+@==(^0^)@
+
+JAB PUNCH HOOK!
+@(^0^)==@
+
+Just 20 minutes!
+
+SEVEN, EIGHT!
+
+Mrs.miza!
+
+Hip twist!
+
+Tighten your belly!!
+
+
+ah, what a movement!
+
+While listening to Hye-ryun Jo's movements and comments, While listening to Hye-ryun Jo's movements comments, (???)
+
+Let's go into the world of taebo!
+
+taebo is an aerobic exercise combined Taekwondo and boxing together.
+
+after two months of taebo, Hye-Ryun Jo has this perfect figure.
+
+Right!
+
+Spending 25 minutes for Taebo is same as one hour of treadmill!
+
+Only 25 minutes a day!
+
+Let's go into the taebo's world!
+
 호롤롤로!
 
 https://youtu.be/oIa3BFBHJFI
