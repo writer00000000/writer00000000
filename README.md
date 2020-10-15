@@ -85,6 +85,57 @@ Only 25 minutes a day!
 
 Let's go into the taebo's world!
 
+SIDE KICK!
+@(^0^)==@
+
+CROSS!
+@==(^0^)@
+
+JUMP!
+@(^0^)==@
+
+SIDE KICK!!
+@(^0^)==@
+
+CROSS!!
+@==(^0^)@
+
+JUMP!!
+@(^0^)==@
+
+SIDE KICK!!!
+@(^0^)==@
+
+CROSS!!!
+@==(^0^)@
+
+JUMP!!!
+
+This is what resting is in the Taebo.
+
+SIDE KICK!
+@(^0^)==@
+
+CROSS!
+@==(^0^)@
+
+JUMP!
+@(^0^)==@
+
+SIDE KICK!!
+@(^0^)==@
+
+CROSS!!
+@==(^0^)@
+
+JUMP!!(YA!!)
+
+Let's spend 25 minutes a day!
+
+Do not watch it only today!
+
+See you tomorrow and the next day!"
+
 호롤롤로!
 
 https://youtu.be/oIa3BFBHJFI
