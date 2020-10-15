@@ -8,13 +8,43 @@ Difficulty!
 
 5SMYAIHMQOGOZJUIEE======
 
-ㄱㄷㅅ딧븻ㅣㄷㅂ싣ㅅ븍ㅂ늡ㄱ슶빋입ㄴ근ㅇㄷㅅ니빕ㄱㄷㄴㅅ빅ㄷㄴㅅㄱ비ㅡㄴㅅㄱ빋ㄴㅅㄱ비ㅡㄴ슥빈슨ㅅㄱ비ㅡㄴㅅㄱ비ㅡㄴㅅ깁는ㅅㄱ비ㅡㄴ십ㄱㅅ늭ㅂㄴ슥비ㅡㄴ식ㅂ스닉ㅂㄴ스빅븟ㄴ븟ㄱ빈븟닉븐ㅅ깁
+"hello!!!!
+
+taebo is getting popular all over the world.
+
+taebo is an aerobic exercise combined Taekwondo and boxing together.
+
+after two months of taebo, Hye-Ryun Jo has this perfect figure.(WA!)
+
+Spending 25 minutes for taebo is same as one hour of treadmill!
+
+Spend only 25 minutes a day!
+
+Let's get in to the world of taebo!
+
+WA!
+
+JAB! JAB!
+
+@==(^0^)@
+
+JAB PUNCH HOOK!
+
+@(^0^)==@
+
+JAB! JAB!
+
+@==(^0^)@
+
+JAB PUNCH HOOK!
+
+@(^0^)==@
 
 호롤롤로!
 
 https://youtu.be/oIa3BFBHJFI
 
-@==(^ㅇ^)@ @(^ㅇ^)==@
+@==(^0^)@ @(^0^)==@
 
 <!--
 **writer00000000/writer00000000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
