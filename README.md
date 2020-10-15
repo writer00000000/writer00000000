@@ -1,4 +1,10 @@
 **Holol there 👋**
+my name is writer or holol.
+holololololololololololololololol
+Difficulty!
+5SMYAIHMQOGOZJUIEE======
+ㄱㄷㅅ딧븻ㅣㄷㅂ싣ㅅ븍ㅂ늡ㄱ슶빋입ㄴ근ㅇㄷㅅ니빕ㄱㄷㄴㅅ빅ㄷㄴㅅㄱ비ㅡㄴㅅㄱ빋ㄴㅅㄱ비ㅡㄴ슥빈슨ㅅㄱ비ㅡㄴㅅㄱ비ㅡㄴㅅ깁는ㅅㄱ비ㅡㄴ십ㄱㅅ늭ㅂㄴ슥비ㅡㄴ식ㅂ스닉ㅂㄴ스빅븟ㄴ븟ㄱ빈븟닉븐ㅅ깁
+호롤롤로!
 
 <!--
 **writer00000000/writer00000000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
