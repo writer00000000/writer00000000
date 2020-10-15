@@ -25,21 +25,22 @@ Let's get in to the world of taebo!
 WA!
 
 JAB! JAB!
-
 @==(^0^)@
 
 JAB PUNCH HOOK!
-
 @(^0^)==@
 
 JAB! JAB!
-
 @==(^0^)@
 
 JAB PUNCH HOOK!
-
 @(^0^)==@
 
+JAB! JAB!
+@==(^0^)@
+
+JAB PUNCH HOOK
+@(^0^)==@
 호롤롤로!
 
 https://youtu.be/oIa3BFBHJFI
