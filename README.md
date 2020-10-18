@@ -142,6 +142,8 @@ https://youtu.be/oIa3BFBHJFI
 
 @==(^0^)@ @(^0^)==@
 
+i like windows!
+
 <!--
 **writer00000000/writer00000000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
